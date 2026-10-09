@@ -7,3 +7,5 @@ det er jo desværre min pligt
 
 # Nyt afsnit
 //Der skal helt sikkert nogle mere talentfulde mennekser ind i det her projekt!
+
+Ungdommen nu tildags, det er sku ikke for godt. Tsk tsk
